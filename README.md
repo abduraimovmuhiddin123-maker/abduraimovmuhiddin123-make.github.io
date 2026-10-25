@@ -1,2 +1,2 @@
-# abduraimovmuhiddin123-make.github.io
+# abduraimovmuhiddin123-maker.github.io
 MR MEAN shaxsiy sayti
